@@ -1,8 +1,4 @@
-- 👋 Hi, I’m Blinkkus!
-- 👀 I’m interested in developing mods for games many enjoy
-- 🌱 I’m currently learning Advanced CS
-- 💞️ I’m looking to collaborate on nothing for now :3
-- 📫 How to reach me: @blinkkus on Twitter/X
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: I dunno
-- 
+- 📫 Inbox: @blinkkus on Twitter/X
+- 🤍 Pronouns: she/her
+- ⌨️ Skill Set: Advanced CS
+- 💞️ Collab Status: Free
