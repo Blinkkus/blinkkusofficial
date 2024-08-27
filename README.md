@@ -1,4 +1,4 @@
 - 📫 Inbox: @blinkkus on Twitter/X
-- 🤍 Pronouns: she/her
+- 🤍 Pronouns: she/her/they/them
 - ⌨️ Skill Set: Advanced CS
 - 💞️ Collab Status: Free
