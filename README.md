@@ -1,4 +1,6 @@
 - 📫 Inbox: @blinkkus on Twitter/X
+- ⏰ Timezone: EST (GMT-4:00)
 - 🤍 Pronouns: she/her/they/them
+- 🩷 Sexuality: Lesbian
 - ⌨️ Skill Set: Advanced CS
 - 💞️ Collab Status: Free
