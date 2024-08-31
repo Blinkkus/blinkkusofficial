@@ -1,4 +1,4 @@
-- 📫 Inbox: @blinkkus on Twitter/X
+- 📫 Inbox: @blinkkus on Discord or Twitter/X
 - ⏰ Timezone: EST (GMT-4)
 - 🤍 Pronouns: she/her/they/them
 - 🩷 Sexuality: Lesbian
