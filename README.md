@@ -1,4 +1,5 @@
-- Inbox: @blinkkus on Discord or Twitter/X 📫
+- Main Inbox: @blinkkus on Discord 📫
+- Secondary Inbox: @blinkkus on X/Twitter 📫
 - Timezone: EST (GMT-4) ⏰
 - Pronouns: she/her/they/them 🤍
 - I'm a Lesbian 🩷
